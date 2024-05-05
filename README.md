@@ -1,1 +1,1 @@
-# Enhancing-Manufacturing-Through-Data-Driven-Insights-Efficiency-
+# Enhancing-Manufacturing-Efficiency-Through-Data-Driven-Insights
